@@ -1,1 +1,1 @@
-Writing on information risk. More on the blog at [riskconsulting.in](http://riskconsulting.in). 
+Writing on information risk. More on the blog at [riskperspective.wordpress.com](https://riskperspective.wordpress.com).
